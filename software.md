@@ -5,3 +5,7 @@
 [a bite at freddys](https://drive.google.com/file/d/12v_piInWNo2jXqWXNlKIdz0mmdOO3H0G/view?usp=sharing)
 
 [fnaf in real time](https://drive.google.com/file/d/1oi0N4oINY3Yt2Pda1xUvffewusMWhBDb/view?usp=sharing)
+
+[Deltatraveler](https://drive.google.com/file/d/1jSM-8ithocKQ18-Z-Dnbw3mGEltitn89/view?usp=drive_link)
+
+[Undertale Yellow](https://drive.google.com/file/d/16EJs8jKy56lZxFaAeVxIrOyEFWhpOpid/view?usp=drive_link)
