@@ -12,6 +12,6 @@
 
 [Deltarune Frostveil](https://drive.google.com/file/d/1CwlDcx0I5e8VBs0SSzDIh0nCCGSpO7ve/view?usp=sharing)
 
-[Terraria](https://drive.google.com/file/d/1CPOn2KtZ67k6OyP_FahArtUK3TbZfSFF/view?usp=sharing)
+Terraria BROKEN, WORKING ON A FIX
 
 [Stardew Valley](https://drive.google.com/file/d/1R-oytSYujIS_f1PiO0vUGSuRFBQqmtzs/view?usp=sharing)
