@@ -14,4 +14,6 @@
 
 Terraria BROKEN, WORKING ON A FIX
 
-[Stardew Valley](https://drive.google.com/file/d/1R-oytSYujIS_f1PiO0vUGSuRFBQqmtzs/view?usp=sharing)
+[Stardew Valley+modded](https://drive.google.com/file/d/1R-oytSYujIS_f1PiO0vUGSuRFBQqmtzs/view?usp=sharing)
+
+[TBOI R+](https://drive.google.com/file/d/1dhAn4KnlN-199jt30KV5RgmjWDcOEND9/view?usp=sharing)
