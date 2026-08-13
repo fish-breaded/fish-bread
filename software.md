@@ -12,8 +12,14 @@
 
 [Deltarune Frostveil](https://drive.google.com/file/d/1CwlDcx0I5e8VBs0SSzDIh0nCCGSpO7ve/view?usp=sharing)
 
-Terraria BROKEN, WORKING ON A FIX
-
 [Stardew Valley+modded](https://drive.google.com/file/d/1R-oytSYujIS_f1PiO0vUGSuRFBQqmtzs/view?usp=sharing)
 
 [TBOI R+](https://drive.google.com/file/d/1JY6f0MPYnt_ximUyE_hw2nZ-HUvES_hd/view?usp=sharing) (certain mods included)
+
+Terraria soon™
+
+Subnautica soon™
+
+Subnautica Below Zero soon™
+
+Subnautica 2 soon™
