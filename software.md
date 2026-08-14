@@ -1,6 +1,7 @@
 ## all software here will be in an old update whether because i cant get a current update, or we havent updated it
 
 [deltarune](https://drive.google.com/file/d/1XweO6dpAt8VDB-fEV49huRn6_OWZSN8T/view?usp=sharing) CH5 UPDATE (getting updates when chapters release)
+[deltarune ch6 totally real!1!!111!!1](https://drive.google.com/file/d/1i8gMHiI1ctYVHEg6Z82-DsyzDSWng_4w/view?usp=sharing)
 
 [a bite at freddys](https://drive.google.com/file/d/12v_piInWNo2jXqWXNlKIdz0mmdOO3H0G/view?usp=sharing)
 
