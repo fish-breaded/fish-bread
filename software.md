@@ -3,6 +3,8 @@
 [deltarune](https://drive.google.com/file/d/1XweO6dpAt8VDB-fEV49huRn6_OWZSN8T/view?usp=sharing) CH5 UPDATE (getting updates when chapters release)
 [deltarune ch6 totally real!1!!111!!1](https://drive.google.com/file/d/1i8gMHiI1ctYVHEg6Z82-DsyzDSWng_4w/view?usp=sharing)
 
+[scampton the great(est)](https://drive.google.com/file/d/1bkFz4wM7Jy5424aYISvGj1-kzwGj2Q17/view?usp=sharing)
+
 [a bite at freddys](https://drive.google.com/file/d/12v_piInWNo2jXqWXNlKIdz0mmdOO3H0G/view?usp=sharing)
 
 [fnaf in real time](https://drive.google.com/file/d/1oi0N4oINY3Yt2Pda1xUvffewusMWhBDb/view?usp=sharing)
