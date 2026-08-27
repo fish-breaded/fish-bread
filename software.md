@@ -19,7 +19,7 @@
 
 [TBOI R+](https://drive.google.com/file/d/1JY6f0MPYnt_ximUyE_hw2nZ-HUvES_hd/view?usp=sharing) (certain mods included)
 
-[Terraria](https://drive.google.com/file/d/1nHeFlCCiBEArjxhC_GmhFZq9Fb8NX7PB/view?usp=sharing) (unless you have admin perms to install "xnafx40_redist" go into tmodloader and use "start-tModLoader.bat")
+[Terraria](https://drive.google.com/file/d/1nHeFlCCiBEArjxhC_GmhFZq9Fb8NX7PB/view?usp=sharing) (unless you have admin perms to install "xnafx40_redist" go into tmodloader and use "start-tModLoader.bat") [some terraria mods](https://drive.google.com/file/d/1MTvpztCpa65MmsER4b2956ANy162mq_O/view?usp=sharing)
 
 Subnautica soon™
 
