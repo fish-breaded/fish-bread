@@ -9,7 +9,7 @@
 
 [fnaf in real time](https://drive.google.com/file/d/1oi0N4oINY3Yt2Pda1xUvffewusMWhBDb/view?usp=sharing)
 
-[Deltatraveler](https://drive.google.com/file/d/1jSM-8ithocKQ18-Z-Dnbw3mGEltitn89/view?usp=drive_link)
+[Deltatraveler](https://drive.google.com/file/d/1jSM-8ithocKQ18-Z-Dnbw3mGEltitn89/view?usp=sharing)
 
 [Undertale Yellow](https://drive.google.com/file/d/16EJs8jKy56lZxFaAeVxIrOyEFWhpOpid/view?usp=drive_link)
 
